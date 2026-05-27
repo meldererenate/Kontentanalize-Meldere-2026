@@ -1,0 +1,1 @@
+Bakalaura darba "INFORMĀCIJAS AĢENTŪRAS LETA SATURA IZMANTOJUMS LATVIJAS MEDIJOS UN TĀ IETEKME UZ MEDIJU SATURA DAUDZVEIDĪBU" ietvaros veiktā kontentanalīze. Analizēti septiņi mediji – Delfi, Tvnet, LSM, NRA, Valmieras Ziņas, Zemgales Ziņas un Ziemeļlatvija.
